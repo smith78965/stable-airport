@@ -1,4 +1,4 @@
-# 低价稳定机场推荐-月付18元200GB、23元300GB、35元800GB、便宜机场年付活动58元600GB、88元2300GB、138元3200GB，奈飞流媒体，TikTok、ChatGPT全解锁、油管8K秒开，适用Clash、V2ray、小火箭、sing-box等客户端
+# 低价稳定机场推荐-月付18元200GB、23元300GB、35元800GB、便宜机场年付活动58元600GB、88元2300GB、138元3200GB，送小火箭ID，奈飞流媒体，TikTok、ChatGPT全解锁、油管8K秒开，适用Clash、V2ray、小火箭、sing-box等客户端
 
 想找一个价格实惠又稳定的机场服务？别急，这里给你推荐几款超值的机场套餐，月付只需18元起，流量从200GB到3200GB不等，满足不同用户的需求。满足Netflix等流媒体的追剧党、游戏玩家，还是需要解锁TikTok、ChatGPT等AI工具的重度用户。本文帮你全面了解这些低价稳定机场的优势、套餐详情、使用体验和选购建议，助你轻松畅享高速网络。
 
@@ -6,7 +6,7 @@
 
 稳定机场是一家老牌科学上网服务商，以高速稳定和多节点覆盖著称。它采用企业级IEPL专线，节点遍布香港、日本、台湾、新加坡、美国等热门地区，还扩展到韩国、澳大利亚等10多个边缘节点，满足全球用户的需求。深受外贸公司、科研人员、科技博主的喜爱。
 
-特别值得一提的是，稳定机场支持ChatGPT、Claude、Bing AI、Midjourney等热门AI工具，同时完美解锁Netflix、Disney+、YouTube、TikTok、Hulu、HBO、AbemaTV等主流流媒体平台，追剧、玩游戏、使用AI都不在话下。
+特别值得一提的是，稳定机场支持ChatGPT、Claude、Bing AI、Midjourney等热门AI工具，同时完美解锁Netflix、Disney+、YouTube、TikTok、Hulu、HBO、AbemaTV等主流流媒体平台，追剧、玩游戏、使用AI都不在话下。另外免费赠送小火箭ID。
 
 
 - [ **稳定官网入口**](https://xx.linkgoo.top/lepl/wen-ding-ji-chang)
